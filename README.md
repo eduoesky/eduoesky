@@ -6,8 +6,7 @@ Uma coisa que sempre me bateu forte em mim é que tudo tem que ser à base da pe
 Se inspire em quem tem como foco algo que goste, eu mesmo, me foco sempre no eu lírico.
 Por favor, sinta-se à vontade para olhar os meus projetos, ainda que com críticas, mas elogios são melhores ahsuahshuahus
 Sei falar inglês e espanhol fluentemente, e médio em coreano!
-Bem-vindo(a), você! <br>
-<span style="margin:10px;content:"";"></span>
+Bem-vindo(a), você! <br><br>
 ig: @edukowalsky <br>
 email: e.d.u.a.k.o.w.a.l.s.k.y@gmail.com <br>
 wpp: +5582981310223 <br>
